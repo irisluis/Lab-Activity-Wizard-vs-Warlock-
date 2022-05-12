@@ -1,1 +1,1 @@
-# Lab-Activity-Wizard-vs-Warlock-
+# Lab-Activity-Wizard-vs-Warlock-Irish-Fhaye-Luis-BSIT1A
